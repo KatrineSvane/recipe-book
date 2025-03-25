@@ -11,9 +11,10 @@
 * 200g white flower
 
 ## Instructions
-* dissolve honey and yeast in water
+* Dissolve honey and yeast in water
 * Add the other ingredients and stirr
 * Cover and leave overnight in the fridge
-* Make rolls on the baking plate (you will need a spoon)
-* Bake for 13-15 mins at 225 C
+* Preheat the oven to 225 C
+* Make rolls on an oven plate with baking paper (you will need a spoon)
+* Bake for 13-15 mins
  
